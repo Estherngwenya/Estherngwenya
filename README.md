@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Estherngwenya
 - 👀 I’m interested in programming 
-- 🌱 I’m currently learning Richfield graduate institute of technology 
 - 💞️ I’m looking to collaborate on any it related 
 - 📫 How to reach me esthermankrie16@gmail.com 
 
